@@ -36,7 +36,7 @@ The official purchase link will be added when the book becomes available.
 
 Follow *I Became the Father I Needed* on social media for book updates, previews, release announcements, and behind-the-scenes content.
 
-**Facebook:** [Follow on Facebook]([https://www.facebook.com/steve.gipson.792])
+**Facebook:** [Follow on Facebook](https://www.facebook.com/steve.gipson.792)
 
 **TikTok:** [Follow on TikTok](https://www.tiktok.com/@steve_gipson1108/video/7685039540213435662?lang=en)
 
