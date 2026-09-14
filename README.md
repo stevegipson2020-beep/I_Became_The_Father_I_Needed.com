@@ -1,4 +1,4 @@
-# I Became the Father I Needed
+
 
 ![Book cover for I Became the Father I Needed](book-cover.jpg)
 
