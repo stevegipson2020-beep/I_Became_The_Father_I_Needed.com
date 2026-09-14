@@ -42,7 +42,4 @@ Follow *I Became the Father I Needed* on social media for book updates, previews
 
 ### Share the Book
 
-**#IBecameTheFatherINeeded #SteveGipson #Fatherhood #BreakingGenerationalCycles #Memoir**
-Share the book on social media using:
-
 **#IBecameTheFatherINeeded #SteveGipson #Fatherhood #BreakingGenerationalCycles #Memoir #Adoption #FosterCare #Healing #ICare #IShowedUp #ISurvived**
