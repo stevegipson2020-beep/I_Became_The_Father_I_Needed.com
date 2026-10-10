@@ -1,12 +1,12 @@
 
 
-![Book cover for I Became the Father I Needed](book-cover.jpg)
+![Book cover for I Became The Father I Needed](book-cover.jpg)
 
 ## A Powerful Memoir by Steve Gipson
 
-*I Became the Father I Needed* is a powerful memoir about fatherhood, healing, foster care, adoption, and breaking generational cycles.
+*I Became The Father I Needed* is a powerful memoir about fatherhood, healing, foster care, adoption, and breaking generational cycles.
 
-## Releasing November 5, 2026
+## Releasing Coming Soon....
 
 Available in hardcover, paperback, and e-book formats.
 
@@ -26,7 +26,7 @@ This is the story of how a man who never felt fully chosen became a father deter
 
 > “I don’t just want to be remembered as a man who survived. I want to be remembered as a man who built something from what he survived.”
 
-*I Became the Father I Needed* is a story of fatherhood, healing, foster care, adoption, resilience, and the power of showing up—even when life gives you every reason to walk away.
+*I Became The Father I Needed* is a story of fatherhood, healing, foster care, adoption, resilience, and the power of showing up—even when life gives you every reason to walk away.
 
 ## Purchase the Book
 
@@ -34,7 +34,7 @@ The official purchase link will be added when the book becomes available.
 
 ## Follow the Journey
 
-Follow *I Became the Father I Needed* on social media for book updates, previews, release announcements, and behind-the-scenes content.
+Follow *I Became The Father I Needed* on social media for book updates, previews, release announcements, and behind-the-scenes content.
 
 **Facebook:** [Follow on Facebook](https://www.facebook.com/steve.gipson.792)
 
