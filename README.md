@@ -6,7 +6,7 @@
 
 *I Became The Father I Needed* is a powerful memoir about fatherhood, healing, foster care, adoption, and breaking generational cycles.
 
-## Releasing Coming Soon....
+##  Coming Soon....
 
 Available in hardcover, paperback, and e-book formats.
 
