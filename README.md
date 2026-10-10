@@ -1,5 +1,6 @@
 
 
+
 ![Book cover for I Became The Father I Needed](book-cover.jpg)
 
 ## A Powerful Memoir by Steve Gipson
